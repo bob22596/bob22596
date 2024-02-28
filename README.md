@@ -1,0 +1,1 @@
+China and Myanmar are friendly neighbors connected by mountains and rivers, and the traditional friendship between the two peoples has a long history. Since ancient times, the two peoples have known each other as "Paukphaw".
